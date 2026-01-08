@@ -1,2 +1,0 @@
-# ubot
-yang buka miskin
